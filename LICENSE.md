@@ -1,4 +1,4 @@
-# 
+# Avançado osmosis trading bot fluxo de trabalho para Mac OS | Leve osmosis trading bot fluxo de trabalho para PC Windows. Com agregação multi-DEX e auditorias de segurança — otimizado para máximo desempenho em cada plataforma.
 
 
 
